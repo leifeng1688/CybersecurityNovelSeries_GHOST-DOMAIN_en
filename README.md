@@ -1,1 +1,1 @@
-# CybersecurityNovelSeries_GHOST-DOMAIN_en
+# Cybersecurity Novel Series — GHOST DOMAIN
